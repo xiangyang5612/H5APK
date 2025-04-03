@@ -26,7 +26,7 @@
 2. 联系我们进行 **APK 打包 & 免杀处理**
 3. 交付 APK，进行安全测试
 
-📩 **联系我们（Telegram）**：[👉 点击联系 @你的TG用户名](https://t.me/moon7877)  
+📩 **联系我们（Telegram）**：[👉 点击联系 @moon7877](https://t.me/moon7877)  
 
 ---
 
@@ -54,4 +54,4 @@
 ✅ **支付系统、营销推广、定制业务**  
 
 💬 **获取你的定制化解决方案**：  
-📩 Telegram：[👉 @你的TG用户名](https://t.me/moon7877)
+📩 Telegram：[👉 @moon7877](https://t.me/moon7877)
